@@ -10,6 +10,7 @@ I'm bisexual and a demigirl!!!!!
 I HAVE THE BESTEST PARTNER IN THE WHOLE WORLD UGH <3
 
 I'm scene and gothic! As in I mainly dress scene and love the scene aesthetic, but I'm also very much into gothic music and dress like them as well :00
-im a very tiny baby bat, i need suggestions and helpful stuffs when it comes to being gothic <3333
+
+^ im a very tiny baby bat, i need suggestions and helpful stuffs when it comes to being gothic <3333
 
 ![](https://64.media.tumblr.com/4b8eaa39b1dc97b6f5241b045b5ca9ec/0d9d6392a423e969-0c/s500x750/a79a060e378bce57436289dfda93f6239beb670b.gifv)
