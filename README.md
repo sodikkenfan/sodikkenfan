@@ -1,4 +1,4 @@
-## Kelly . Claire !!
+## Kelly . Blace !!
 .  she / they / he
 
 ![](https://64.media.tumblr.com/2efd73694b356d26698fd5882fd45394/d1b13d10a3b57c68-cf/s400x600/369db98b537f2254e3d5c095a1812b044f2f1a7f.gifv)
@@ -11,7 +11,7 @@ I HAVE THE BESTEST PARTNER IN THE WHOLE WORLD UGH <3
 
 I'm scene and gothic! As in I mainly dress scene and love the scene aesthetic, but I'm also very much into gothic music and dress like them as well :00
 
-^ im a very tiny baby bat, i need suggestions and helpful stuffs when it comes to being gothic <3333
+^ im a baby bat, i need suggestions and helpful stuffs when it comes to being gothic <3333
 
 ![](https://64.media.tumblr.com/6f06d07af1749a1355d8424d711a4aea/acc4beb83a44f0b1-7b/s250x400/33079ed1e277ff1acd2fe04c6371e66b6277fedf.gifv)
 
