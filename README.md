@@ -4,7 +4,9 @@ I am a minor
 
 I'm bisexual and a demigirl
 
-I HAVE THE BESTEST PARTNER IN THE WHOLE WORLD UGH <3 might talk abt them a lot TW!
+I HAVE THE BESTEST PARTNER IN THE WHOLE WORLD UGH <3
+
+^ might talk abt them a lot TW!
 
 I'm scene and gothic
 
