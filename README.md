@@ -4,9 +4,9 @@ I am a minor
 
 I'm bisexual and a demigirl
 
-I HAVE THE BESTEST PARTNER IN THE WHOLE WORLD UGH <3
+I HAVE THE BESTEST PARTNER IN THE WHOLE WORLD UGH <3 might talk abt them a lot TW!
 
-I'm scene and gothic! As in I mainly dress scene and love the scene aesthetic, but I'm also very much into gothic music and dress like them as well :00
+I'm scene and gothic
 
 ^ im a baby bat, i need suggestions and helpful stuffs when it comes to being gothic <3333
 
