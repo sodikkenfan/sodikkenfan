@@ -1,6 +1,6 @@
 ## Kelly / Blace !!
 
-I am a minor
+Im a minor (17)
 
 I'm bisexual and a demigirl
 
