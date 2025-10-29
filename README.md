@@ -1,6 +1,6 @@
 ## Kelly / Blace !!
 
-Im a minor (17)
+Im a adult (18)
 
 I'm bisexual and a demigirl
 
@@ -14,4 +14,4 @@ I'm scene and gothic
 
 ![](https://64.media.tumblr.com/6f06d07af1749a1355d8424d711a4aea/acc4beb83a44f0b1-7b/s250x400/33079ed1e277ff1acd2fe04c6371e66b6277fedf.gifv)
 
-all of my ponies are really shitty looking bc i put in no effort!! detailed ponies of mine will only be ponies that were gifted to me!
+all of my ponies can be either monochrome or really detailed ... any other style means those ponies were gifted ^_^
