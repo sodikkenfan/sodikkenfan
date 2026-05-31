@@ -1,4 +1,4 @@
-## Kelly / Blace !!
+## Kelly !!
 
 Im a adult (18)
 
